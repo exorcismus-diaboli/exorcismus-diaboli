@@ -12,7 +12,7 @@ Formerly ᅟknown byᅟ the name Karl or Rou.ᅟᅟusing theᅟ pronounsᅟhe/hi
 
 **PERSONAL LOG** .  a person of few words, in other wordsᅟ struggling withᅟ expressing himself, he's ᅟslow at responding & easily socially drained.ᅟ interact with extra ᅟ caution would be preferred.
 
-**FAVORITE THINGS** . uhm, hello so im in the fandoms of FAITH, midnight mass, G&B, The Exorcist, ect. (you can ask).
+**FAVORITE THINGS** . uhm, hello so im in the fandom of FAITH, midnight mass, G&B, The Exorcist, ect. (you can ask).
 
 ***
 
