@@ -1,5 +1,3 @@
-> this is unfinished 
-
 Formerly ᅟknown byᅟ the name Karl or Rou.ᅟᅟusing theᅟ pronounsᅟhe/him primarily,ᅟ thoughᅟthey/them ᅟworks too.
 
 ***
