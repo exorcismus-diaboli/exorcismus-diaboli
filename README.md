@@ -1,3 +1,5 @@
+<div align="center">
+  
 ![Alt Tag](https://files.catbox.moe/5a2wzd.jpg)
 
 <div align="center">
@@ -6,4 +8,6 @@
 
 <div align="center">
 
-work in progress
+people who knew me long enough or close will call me **rou**. But most of people will call me **Karl** anyway.
+
+> work in progress 
